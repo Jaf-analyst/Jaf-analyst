@@ -14,6 +14,7 @@ whether that’s an internship, entry-level role, freelance project, remote oppo
 I want to work on problems worth solving, turn data into insights people can act on, and build solutions that have a purpose beyond simply looking good. So if you’re working on something meaningful and looking for someone curious, analytical, and ready to contribute, let’s connect.
 
 X handle: https://x.com/jd_analyst?s=11&t=U3_QDiGlmwG_lKbDsulDeg
+
 Linkedln : https://www.linkedin.com/in/ja’afar-ibrahim-salihu-9826723aa?utm_source=share_via&utm_content=profile&utm_medium=member_ios
 
 <!--
