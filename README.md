@@ -15,7 +15,7 @@ I want to work on problems worth solving, turn data into insights people can act
 
 X handle: https://x.com/jd_analyst?s=11&t=U3_QDiGlmwG_lKbDsulDeg
 
-Linkedln : https://www.linkedin.com/in/ja’afar-ibrahim-salihu-9826723aa?utm_source=share_via&utm_content=profile&utm_medium=member_ios
+Linkedln :https://www.linkedin.com/in/jaf-analyst?utm_source=share_via&utm_content=profile&utm_medium=member_ios
 
 <!--
 **Jaf-analyst/Jaf-analyst** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
